@@ -10,7 +10,7 @@ including those to football, the out
 look and prospects for next year.
 
     
-The Rossburg Flub lias ar
+The Rossburg Club lias ar
 ranged to give dances, during 1910
 on the following dates: January 21.
 February 12, and April 2.
